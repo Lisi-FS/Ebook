@@ -1,0 +1,2 @@
+Crie um título de um e-book sobre o tema café, o e-book é do nicho de café e o subnicho é de cafeterias em Brasília. O título deve ser épico e curto e tenha uma temática mais vintage e tenha uma temática francesa no título. Me liste 5 variações de títulos.
+Agora preciso de uma imagem, imagine a frente de um café na França, com uma visão da rua. na fachada tem várias mesinhas para as pessoas se sentarem e está pela manhã.
